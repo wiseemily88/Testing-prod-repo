@@ -1,5 +1,5 @@
 always hustling! 
-still hustling!!!!
+STILL hustling!!!!
 
 and still hustling
 every day I'm hustling
