@@ -1,1 +1,1 @@
-a story about a redheaded girl!
+a story about a strawberry girl!
