@@ -1,5 +1,6 @@
 always hustling! 
 STILL hustling!!!!
+still hahahh
 
 and still hustling
 every day I'm hustling
@@ -9,6 +10,6 @@ EVERYDAY IS A HUSTLE
 
 EVERY DAY IM HUSTLING
 
-HUSTLE AND FLOW
+HUSTLE AND FLOW!!!
 
 
